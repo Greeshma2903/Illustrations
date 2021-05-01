@@ -1,5 +1,5 @@
 # Illustrations
-## Collection of some Illustrations I have made using Abode Illustrator and other tools.
+## Collection of some Illustrations I have made using Abode Illustrator and other tools. ✍
 
 ### Profile Flat Illustration
 ---
