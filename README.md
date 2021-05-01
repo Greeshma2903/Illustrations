@@ -1,2 +1,3 @@
 # Illustrations
-Some Illustration I have made on Illustrator and other platforms
+Collection of some Illustrations I have made using Abode Illustrator and other tools.
+
